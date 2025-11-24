@@ -1,0 +1,1 @@
+# GH_ICT10_Q2SKILLTEST_Abdullah_Jalainie
